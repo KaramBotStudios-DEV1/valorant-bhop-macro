@@ -1,1 +1,1 @@
-# valorant-bhop-macro
+# Undetected by Vanguard
